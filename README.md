@@ -1,1 +1,1 @@
-# sanabel-al-firdaws-obsidian
+# sanabel-al-firdaws-obsidian.
